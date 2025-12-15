@@ -1,4 +1,4 @@
 # My Project
 
-This is my project. Learn more by visiting [Instgram pro](https://instaproapk2.com/).
+This is my project. Learn more by visiting [insta pro original](https://instaproapk2.com/).
 
